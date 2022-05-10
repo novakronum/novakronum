@@ -1,4 +1,5 @@
 ### oi, eu sou...ah não importa vai tomar no seu cu 🤝
+E não vem me encher a porra do saco, eu sou sonolento
 
 [![Youtube](https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/channel/UCPz0OOA33yvi4BLJy-LKMhw)
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/Nova_Krhonos)
